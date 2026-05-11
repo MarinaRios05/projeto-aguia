@@ -43,7 +43,7 @@ Transformar vidas através da música, ensinando não apenas teoria e prática m
 
 ## 🤝 Como contribuir
 
-Quer apoiar o Projeto Águia?
+Quer apoiar o Projeto Águia??
 
 Compartilhe o site para aumentar sua visibilidade.
 
